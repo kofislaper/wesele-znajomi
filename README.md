@@ -1,5 +1,7 @@
 # Wskazówki dojazdu na wesele Gosi i Mateusza
 
+Już 21 maja o 15:00 widzimy się na naszym ślubie i weselu. Podrzucamy Wam informacje organizacyjne
+
 ## Nocleg
 Agroturystyka Albinos
 
