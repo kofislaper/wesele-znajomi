@@ -9,7 +9,7 @@ Agroturystyka Albinos
 
 [google maps](https://goo.gl/maps/hQF5iuKsj4HXxenWA)
 
-Każdy pokój ma własną łazienkę. W pokojach pościel i ręczniki. 
+Każdy pokój ma własną łazienkę. W pokojach pościel i ręczniki. W ośrodku dostępne też żelazko i suszarka do włosów. Doba hotelowa w sobotę nawet od 8 rano. 
 
 ## Kościół
 Kościół św. Małgorzaty w Wysokiej
