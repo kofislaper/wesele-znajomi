@@ -25,7 +25,7 @@ Albigowa 300, 37-122 Albigowa
 
 [google maps](https://goo.gl/maps/nTEJNnaNCdpnJXZt7)
 
-Będziemy mieli kierowców odwożących z sali weselnej do noclegów. 
+Będziemy mieli kierowców odwożących z sali weselnej do noclegów. Zachęcamy też do spaceru z wesela na nocleg. To tylko 12 min pieszo pod rozgwieżdżonym bieszczadzkim niebem. 
 
 ## Dom Panny Młodej
 Adres: Wysoka 23 (Łańcut) 
