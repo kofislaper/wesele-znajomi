@@ -5,7 +5,7 @@ Już 21 maja o 15:00 widzimy się na naszym ślubie i weselu. Podrzucamy Wam inf
 ## Nocleg
 Agroturystyka Albinos
 
-37-122 Albigowa; 1036 a, 37-122 Albigowa
+Albigowa 1036 a, 37-122 Albigowa
 
 [google maps](https://goo.gl/maps/hQF5iuKsj4HXxenWA)
 
