@@ -11,6 +11,8 @@ Albigowa 1036 a, 37-122 Albigowa
 
 Każdy pokój ma własną łazienkę. W pokojach pościel i ręczniki. W ośrodku dostępne też żelazko i suszarka do włosów. Doba hotelowa w sobotę nawet od 8 rano. 
 
+Koszty związane z zakwaterowaniem ponoszą organizatorzy ;)
+
 ## Kościół
 Kościół św. Małgorzaty w Wysokiej
 
